@@ -15,6 +15,10 @@ Have a look at my [resume](https://drive.google.com/file/d/1mE82LGHwWawTNRTW70Zc
   - [Efficacy Report Introdcution](https://drive.google.com/file/d/1BfikyA2z_sFcqYoUYNp2JQIxwI3Ksops/view?usp=sharing)
   - [School District Facing Observation Report](https://drive.google.com/file/d/10bz_6xqSmo09bZ1ahUuuUCiGDJeOu3fP/view?usp=sharing)
 
+* Education Blog Posts (Ghostwriting)
+  - [Handwriting Heroes Digital Promise Certification](https://lxdresearch.com/digital-promise-hh)
+  - [Edpuzzle Digital Promise Certification](https://lxdresearch.com/edpuzzle-dp-cert)
+
 * Academic
   - Graduate College Entrance Essay Rewrite
      - [Before](https://drive.google.com/file/d/1Fc_nHT0RMrnTNGJcTeDAYVjpOKpvExR4/view?usp=sharing)
